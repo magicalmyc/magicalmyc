@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @magicalmyc!
+- 👀 I’m interested in roblox.
+- 🌱 I’m currently learning how to make eggos.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me? You can't.
